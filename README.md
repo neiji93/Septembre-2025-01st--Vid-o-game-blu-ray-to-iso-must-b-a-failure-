@@ -1,0 +1,2 @@
+# Septembre-2025-01st--Vid-o-game-blu-ray-to-iso-must-b-a-failure-
+According to m'y scrupti'gs stuffs on 27,28,29th August 2025, as everything IS scrupted in a game engine design (only mine), it would bé possible to créate an ISO of a récent vidéo game if there IS nonsecure security in it. Please notice that a repository IS lissing. I m working on gueule.com to créate another scrupted engine if im not wro'g. 
